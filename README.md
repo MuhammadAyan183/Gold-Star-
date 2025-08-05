@@ -1,1 +1,2 @@
-# Gold-Star-
+# Gold-Star-Ye hogaya page 1 ka thk hai ab page me hamme up to page you have to keep profile option, setting option,or team or darmiyaan me wallet ka option work option in work you have to keep task five star review and and in wallet you have to keep withdrawal option and withdrawal history and when all user will complete task so they will receive 35 pkr and when he  will invite one person so he will get 150 pkr you have to keep five  withdrawl limit 700,2000,3000,4500,6000 make this website
+
